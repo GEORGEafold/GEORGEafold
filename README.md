@@ -1,0 +1,6 @@
+- 👋 Hi, I’m  giorgi
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning python in GOA
+- 📫 How to reach me (wont say it)
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im a basketball player
